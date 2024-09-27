@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ciências da computação<br>2• semestre<br>UNIVALI - Itajaí<br><br>Tenho 18 anos, e além de estudar sou atleta profissional de Handebol.<br><br>Clube: ACEU Handebol Itajaí<br>Celular: (49) 9 9970 - 0049
+Ciências da computação<br>2° semestre<br>UNIVALI - Itajaí<br><br>Tenho 19 anos, e além de estudar sou atleta profissional de Handebol.<br><br>Clube: ACEU Handebol Itajaí<br>Celular: (49) 9 9970 - 0049
 
 
 ## 🌐 Socials:
